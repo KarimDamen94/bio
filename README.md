@@ -1,4 +1,4 @@
-# bio
+# Bio
 👋 Hello there! I'm Mohammed Karim Al Damen, a passionate tech recruiter on a mission to connect top talent with exciting opportunities.
 
 🔍 About Me:
