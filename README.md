@@ -3,7 +3,7 @@
 
 🔍 About Me:
 
-💼 Recruitment Expertise: With 6 years of experience, I specialize in identifying and engaging top-notch tech professionals.
+💼 Recruitment Expertise: With 7 years of experience, I specialize in identifying and engaging top-notch tech professionals.
 🚀 Tech Enthusiast: I'm fascinated by the ever-evolving tech landscape and thrive on staying updated with the latest trends.
 💬 Effective Communication: My approach is built on transparent and meaningful interactions with candidates and hiring teams.
 
